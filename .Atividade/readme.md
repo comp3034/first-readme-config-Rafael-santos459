@@ -1,7 +1,7 @@
 # Rafael Santos Ribeiro
 
 1. C.
-2. 2005.
+2. 2005
 3. Fevereiro.
 4. 22.
 5. Londrina.
