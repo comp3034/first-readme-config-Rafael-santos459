@@ -3,7 +3,7 @@
 1. C.
 2. 2005
 3. Fevereiro.
-4. 22.
+4. 22
 5. Londrina.
 6. Em seu principal, amor por jogos e o amor por computadores.
 7. C.
